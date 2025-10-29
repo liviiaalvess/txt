@@ -1,2 +1,2 @@
 # txt
-eu e a mi(noria
+noius
